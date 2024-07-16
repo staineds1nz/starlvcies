@@ -1,4 +1,5 @@
-![banner](https://github.com/user-attachments/assets/3b611957-e8c5-4a75-bf24-81e909df4303)
+![banner](https://github.com/user-attachments/assets/03f05aae-9fc5-4b21-9413-8073b3cfb999)
+
 
 
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . - 
@@ -32,4 +33,5 @@
 
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . -
 
-![banner2](https://github.com/user-attachments/assets/5b81decf-1344-4a6c-9fc0-3d3e319f050f)
+
+![banner2](https://github.com/user-attachments/assets/9d2a18c0-c0fa-428c-af48-722ab8641ec3)
