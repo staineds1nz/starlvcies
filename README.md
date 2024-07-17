@@ -10,7 +10,7 @@
 ★ hihi!! My name is **Aura**,, ( nicknames are alr )  ★
 
 - ★ I go by any pronouns, I personally use ( **she / they** ) however feel free to refer to me in whichever way you prefer !
-     -  ★ I'm mostly at the beach making ponies or jst afk,, you'll also see me looking for pearls.
+     -  ★ I'm mostly at the beach making ponies or jst afk,, you'll also see me looking for pearls. If i'm not there, im prob afk somewhere on the map. 
 
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . -
 ## ๑⋅⋯ 𝗕𝗬𝗜 ! ✧₊⁺ ,, 
