@@ -14,7 +14,7 @@
 
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ . -
 ## ๑⋅⋯ 𝗕𝗬𝗜 ! ✧₊⁺ ,, 
-- It's a huge hassle for me to interact; I don't really start convos with people (i'm sorry!).
+- It's a huge hassle for me to interact (social anxiety); I don't really start convos with people (i'm sorry!).
      - 😭ᡣ𐭩 If you do int with me, I get really talkative and I ask lots of questiouns.
      ▪️ I sometimes get too comfy, I can be a bit clingy with my trust in people. If anything I do makes you uncomfortable,
  𝗽𝗹𝗲𝗮𝘀𝗲 alert me and i'll do my best to ease up and 𝗺𝘆 𝗮𝗽𝗼𝗹𝗼𝗴𝗶𝗲𝘀 𝗳𝗼𝗿 𝘁𝗵𝗮𝘁.
